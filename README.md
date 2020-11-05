@@ -6,3 +6,5 @@ Geburtsort: **Rottweil**
 Hochschule: *Hochschule Furtwangen*
 
 ![](20190220_175533.jpg)
+
+Stabil, Bruder
